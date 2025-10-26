@@ -1,1 +1,2 @@
-# Chrisna-Ariesta-Lai_25-556653-PA-23376_MagangGMRT_Day3.
+# Chrisna Ariesta Lai
+# NIM: 25/556653/PA/23376
